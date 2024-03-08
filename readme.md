@@ -1,0 +1,1 @@
+Welcome to FitZone, the online fitness hub that's dedicated to helping you achieve your health and wellness goals. Our platform offers a wide range of workouts and resources that are designed to be accessible to anyone, regardless of fitness level or experience
